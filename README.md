@@ -1,0 +1,1 @@
+# Gabriel_Murkovic_LV06-Slo-ena-naredba-odlu-ivanja-ugnje-ivanje-
